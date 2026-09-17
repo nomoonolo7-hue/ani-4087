@@ -1,0 +1,2 @@
+à 30cm, mon doigt semble se déplacer de 9unité ensuite à un mètre mon doigt se déplaçait à l'unité en faisant de grand bon donc je dirait 8unité même chose pour les trois mètre ou j'en ai fait 10 
+ce qui reste inchangé c'est le fait que lorsque je ferme œil et que je me déplace j'ai l'impression avec l'autre œil que la distance qui reste est plus grande qu'avec œil qui était ouvert lorsque je déplaçait    
